@@ -1,5 +1,9 @@
-# KORACULTURE
-Metaverse Flora Fauna and Amulets; Metamorphosis.
-KRACULTURE is the paralell universe by way of Timelord Technology or the metaverse. The KORACULTURE-SUPPLY-CHAIN will create what is here on earth and is of use to us in the metaverse.HARMONYBEAUTY AND FANTASY wil inject "life foece into the metaverse ecosystem. 
+KORACULTURE:
+METAVERSE Flora Fauna and Amulets; Metamorphosis.
+Koraculture is the paralell universe by way of Timelord Technology or the metaverse. The KORACULTURE-SUPPLY-CHAIN will create what is here on earth and is of use to us in the metaverse.HARMONYBEAUTY AND FANTASY wil inject "life foece into the metaverse ecosystem. 
 
-The reason humans are unable to reach ascension (teleport) or inhabit the metaverse is because of KARMA. This is the inner or better said "ethers" the source from which is origin. A human metamorphosis must take place in within the METAVERSE in order for them to telwpot or ASTRAL TRAVEL without incident. Academics know this but they stand to lose a lot with this reality. Hippies from the psychedelic could be shruged off as fringe elements but the metaverse is academics and nuch more. Kora culture is built for the human metamorphosis within this new fronteer. On a footnote. Lightspeed isn,t the fastes in the universe. Tought waves travel faster than lightwaves. Think it and you are there. I&I have this experience and stories to go along. Check out the IPT-VR protocol Inrer planetary travel agency. Now operating.
+The reason humans are unable to reach ascension (teleport) or inhabit the metaverse is because of KARMA. This is the inner or better said "ethers" the source from which is origin. A human metamorphosis must take place in within the METAVERSE in order for them to telepot or ASTRAL TRAVEL without incident. Academics know this but they stand to lose a lot with this reality. Hippies from the psychedelic 60's could be shruged off as fringe elements but the METAVERSE is academics and nuch more. Koraculture is built not onl for the human metamorphosis but also habitation habitation within this new fronteer.
+
+On a footnote. Lightspeed isn,t the fastes in the universe. Thought waves "toth" travel faster than lightwaves. Think it and you are there. I&I have this experience and stories to go along. Check out the IPT-VR protocol Inrer planetary travel agency. Now operating.
+
+Contact: RASTA-MESU-Dean- Martinez-Genus.
