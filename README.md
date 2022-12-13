@@ -1,3 +1,4 @@
 # KORACULTURE
 Metaverse Flora Fauna and Amulets.
-r
+KRACUKTURE s the paralell Universe by way of Timelord Technology. The chain supply wil create this paralwll universe in VR. The reason humans are ynable to teleport is because
+ of KARMA. This is the inner or berrer said ether the source from which is origin. A human metamorphosis must take place in or der for the human to teleport "within the metaverse". Academics know this but they stand to lose a lot with this reality. Hippies from the psychedelic could be shruged off as fringe elements but the metaverse is academics and nuch more. Kora culture is built for the human metamorphosis within this new frontwer. On a footnote. Lightspeed isn,t the fastes in the universe. Tought waves travel faster than light. Think it and you are there. I&I have this experience and stories to go along.
