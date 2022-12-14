@@ -1,3 +1,10 @@
+
+(https://github.com/Deangenus/AFKOIN/blob/beb002186177efaf547cdd6ff73efadbfc359713/AFKOIN.png)
+
+
+
+
+
 KORACULTURE:
 METAVERSE Flora Fauna and Amulets; Metamorphosis.
 Koraculture is the paralell universe by way of Timelord Technology or the metaverse. The KORACULTURE-SUPPLY-CHAIN will create what is here on earth and is of use to us in the metaverse.HARMONYBEAUTY AND FANTASY wil inject "life foece into the metaverse ecosystem. 
